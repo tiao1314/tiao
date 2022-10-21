@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **games**
 
-- 📫 How to reach me **tiao#1314**
+- 📫 Reach me on discord **tiao#1314**
 
 - ⚡ Fun fact **im the best gamer you can find**
 
