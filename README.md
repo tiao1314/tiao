@@ -4,11 +4,11 @@
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/cX92mi1p-NYAAAAd/coding-anime.gif">
 
 
-- 💬 Ask me about **games**
+- **Seeking for internship**
 
-- 📫 Reach me on discord **tiao#1314**
+- discord **tiao#1314**
 
-- ⚡ Fun fact **im the best gamer you can find**
+- **im the best gamer you can find**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
