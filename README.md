@@ -6,7 +6,7 @@
 
 - **Seeking for internship**
 
-- discord **tiao#1314**
+- **discord tiao#1314**
 
 - **im the best gamer you can find**
 
